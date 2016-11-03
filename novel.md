@@ -76,3 +76,80 @@ Harriet was too busy looking at the facsimiles of ancient creatures, and listeni
 “Of course! So many kids. There must be a field trip. Do you want to see if we can go inside the library?” Ruth inquired, looking hopeful. 
 
 “Yeah, sure.” Harriet mumbled. The museum is overwhelming. She hoped the infestation of small children was a temporary deal, but she had a lurking feeling that she’d be fighting her way to the office every day through crowds of tiny, mid-sized, and full-grown humans. 
+
+### Chapter 2
+Harriet A. Allen and Ruth M. Jillian pressed their faces up against the glass of the Library’s doors, and ended up surrounded by books, busts of old men, and paintings of animals.
+
+Cursing their lack of Museum-official badges, the two young women were desperately looking around the library, or at least what was in range of the view while having a face mashed up against glass doors. That is, until the librarian at the reference desk glanced up, jumped nearly out of her skin upon noticing them, and got up to open the doors.
+
+“We always get a few eager students here around this time of day,” the librarian laughed, “We’re closed to the public now, but it’s been a slow work day for me, so you both can come on in. I’m June, a reference librarian here. Would you like a small tour of the reading room, or just a look around?“
+
+Ruth immediately exclaimed, “A tour please! I’m Ruth, and this is Harriet. We’re in the new cohort of PhD candidates in the comparative biology program. Today is our very first day! We’re on the self-guided tour portion of our schedule, and thought we might check out the library.” 
+
+Ruth gushed this out right as Harriet was about to tell the librarian they didn’t want to disturb her or her work, especially since they knew the library was closed. Harriet sighed but didn’t contradict her (hopefully) new friend and followed the librarian to the edge of the rows of  bookcases in the reading room. 
+
+“I’ll give you two a little preview of the official tour we do for new students here then! The library here was founded in 1869, right at the same time the Museum itself was founded. Since then, the AMNH research library has grown into one of the largest natural history libraries in the word! The library collects everything from field journals to publications, to the sweaters that our researchers wore on the first ever expedition to Mongolia. We have a team of conservationists that have been keeping that particular item safe for half a century. We work to support the work of the Museum’s scientific staff, which is now you! We have a few collections you can leverage at your time here: our research collection, our special collections, and our digital collections. You students will have the chance to come in here and work with our materials at some point in your coursework! And if you ever need anything we *don’t* have, you can just ask me. I’m in charge of interlibrary loan.” June explained with a wink, walking Harriet and Ruth in between the stacks, “What is your focus?”
+
+“I’m here because I really want to do mammology, focusing on canidae. That’s like foxes, wolves, canines like that! I just think they are so fascinating. And so cute, of course!” Ruth exclaimed.
+
+“*Why does this not surprise me...*” Harriet grouched, while simply replying, “Ornithology by trade, but I’m really more interested in the side of conservation ecology.”
+
+“Oh great! You’ll find the program here really interesting for both those fields, especially given the personalities of the folks in them. You’ll find lots of hippies in conservation, and a lot of dry wits in mammology. That department has its own beautiful archive of field journals dating back to the very first expeditions by Museum scientists. The folks at the Center for Biodiversity Conservation take a really technologically mixed approach to data gathering, which is really cool to follow.”
+
+“Wow! Do you think I’ll get to see them?” Ruth asked, eyes wide.
+
+“Hippies? Seriously?” Harriet asked in disbelief. “I thought I left those behind on the West coast. I even have yet to see a Whole Foods in NYC.”
+
+“Well, the curators have keys, so you’ll probably just have to ask your advisor. There’s a lot of interesting stuff in those journals – about how the landscape has changed, and how mammals change with it. Very cool to do a comparison study with that data. And oh yeah, Harriet. It’s not just the tourists rocking the socks-with-sandals look around the Museum. Go down to 79th street and you’ll find a Whole Foods waiting for you.” June joked. 
+
+I gave her a chuckle, but then Ruth laughed.
+
+But this laugh wasn’t your average cute-girl politely low-volumed chuckle, like you’d expect from someone with her perky, light-haired, excitable demeanor. This was a full-on snort, grunt, deep-bellied laugh that you’d expect out of a middle aged man with sleep apnea. She went on for a full thirty seconds of this before composing herself.
+
+June and Harriet gave each other incredulous looks, and Harriet burst out laughing with her own “normal” but loud laugh, gasping air and putting her hand over her mouth to reduce noise pollution in the library. By now, Ruth was extremely confused, watching Harriet guffaw and smiling widely. 
+
+“It wasn’t *that* funny, Harriet. No offense, June!!”
+
+“I’m sorry, something just tickled me” Harriet grinned, looking at June with knowing eyes. 
+
+“But in all seriousness,” June started again “There are some seriously amazing people here. And we all work together.“
+
+“I know, I’ve been following their publications and field studies since applying for the program, “ Harriet replied. 
+
+“I am just so excited to meet my advisor and get into the meat-and-potatoes of natural history work. I want to go out in the field and see some cute canids up close for myself!” Ruth proclaimed.
+
+“Well you know, our field expeditions are carefully thought out. Don’t go into this thinking you’ll get to pet these wild animals. I’ve heard of people getting into dangerous situations with carnivores in the past.“ June warned. 
+
+“Oh, I know, I’ve been in the field before. Growing up the suburbs I used to pet the wild foxes all the time, but my advisors beat that out of me. I can’t help it! I love their fluff!” Ruth declare with the excitement of a five-year-old being able to pet a stranger’s puppy on the street. 
+
+“This is why I stick to mostly birds, or maybe some small mammals,” Harriet interjected, “No real threat of harm, unless you deal with cassowaries. Hell no thank you. Those demons are pretty much dinosaurs, and look like them too!“
+
+“So, what made you girls come to New York City? Did you live here before and want to stay, or come from out of town? “ June asked, innocently. 
+
+Ruth, as always, answered first. “I’m from Boston so not that far away. I visited the city a bunch when I was in high school and college, and decided I wanted to do *some* coursework here eventually. I just happened to get good scholarships for being an in-state resident in Massachusetts, so I ended up making the goal a PhD in New York City.“
+
+Just as the two women turned to hear Harriet’s answer, she abruptly changed the subject, instead asking “So June, how long have you worked here?”
+
+“Oh, about ten years now. I started off on soft money from grants and was just recently promoted! I’m now 100% officially on the AMNH payroll.” June proudly gushed.
+
+While Ruth and June continued to chatter happily, Harriet’s mind wandered off, and with it her eyes. Scanning the stacks for an interesting book to check out once her badge had been issued, she zeroed in a book, whose title was too far away to see. Almost as if possessed, Harriet briskly walked over to the stack and stared into the spine. “*The story of the land by Harry Stevenson and Farida Springer. Wow, 1951. This is pretty cool*”
+
+The heart pangs were back, with the vengeance of 1,000 scorned enemies. Harriet turned quickly around so the other two women across the aisle couldn’t see her stagger and clutch her chest. Her ears started pounding. “*What the frack is happening to me?!*” she frantically thought, looking around for any sign of the source of her shakiness, and bracing on the conveniently waist-height bookcase. Her eyes bore into the book. Trying to collect herself, she closed her eyes and stood for a moment in silence, willing her body to settle itself down. And suddenly, despite her vertigo, she reached her hand out for the volume, as if holding it would make her feel better, even if it was just a moment.
+
+“Oh, honey, be careful! That’s a first edition.” A voice reached out to her, grasping her and pulling her out of her disequilibrium.
+
+Harriet snapped to attention. “Oh I’m so sorry. I didn’t realize. It just looked to interesting” She recovered, putting on her most sugary smile for the librarian.
+
+Ruth shot her that same knowing, compassionate look from this morning's ordeal. “We should probably go, Harriet! We only have an hour and a half.” She looks at June, “Thank you so much for showing us the stacks. We’d love to come back and see the special collections! I hope it’s on our official tour.“
+
+June smiled kindly, “Yes, I believe it is. Feel free to make an appointment with me if you have specific questions.”
+
+After a round of “thank you” from both women, Ruth turned up the aisle towards the exit. As Harriet started to follow her, June gently touched her left shoulder.
+
+“If you have *any* specific questions, please, come back.“ She whispered to Harriet with some urgency.
+
+“Ok...thanks.” Harriet confusedly murmured back. “*What was that about? I hope she didn’t notice my weirdness. It’s nothing. Maybe there’s a gas leak in this museum. Why does this always happen to me.*” Harriet hurried up the aisle to meet Ruth at the doors.
+
+“Sorry! I just had a quick question for her.” Harriet apologized, smiling in the hope she didn’t weird out *yet another* person of her small cohort of colleagues.
+
+“No problem! It’s so cool, huh? So interesting to see the history of work we will be building on, hopefully!” Ruth gushed, leading Harriet back down to the elevators, hitting the down arrow.
