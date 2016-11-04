@@ -153,3 +153,86 @@ After a round of “thank you” from both women, Ruth turned up the aisle towar
 “Sorry! I just had a quick question for her.” Harriet apologized, smiling in the hope she didn’t weird out *yet another* person of her small cohort of colleagues.
 
 “No problem! It’s so cool, huh? So interesting to see the history of work we will be building on, hopefully!” Ruth gushed, leading Harriet back down to the elevators, hitting the down arrow.
+
+### Chapter 3
+Harriet A. Allen was very confused. 
+
+XXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXX
+
+When Harriet returned home to find Copernicus curled up like an angel on her bed, she collapsed, face down, and joined him in sleep. 
+
+### Chapter 4
+Harriet A. Allen was stuck in the elevator with the chattiest person on the planet, and it wasn’t even nine o’clock in the morning. 
+
+“*I should have trusted my instincts when they told me to get the extra large coffee when the man offered it as a new size.*” She thought as she anxiously looked around for a phone number to call to get herself, Ruth, and the five Museum guests (children and their mother here early for an education initiative) in the elevator out of this mess. 
+
+Although she thankfully arrived to her second day of work on time, meeting Ruth for a coffee at one of the stands just outside the Museum, and now she was now late yet again because some wonderful, perfectly behaved child had pressed all the buttons for every single floor, including the ones on different sides of the elevator, and it got stuck between floors moving upwards. 
+
+“*I am done riding elevators with children for at least this entire week. I’ll take the gorram stairs up. I need to get my 10,000 steps anyway, and I haven’t found a good path in central park to run yet. And those bagels are too delicious. Yes. I’m going to walk. This is good.*” Harriet thought begrudgingly, “*At least until I get my AMNH official badge, though, then I am taking the freight elevator every day.*”
+
+What’s even better is, now, is that Harriet is stuck with not only the child (now just absolutely howling in the corner loudly) but also Ruth, who was content to pass the time chattering. Harriet was fine listening to the birds chirp at each other, but before nine AM, Ruth’s enthusiasm and love for everything and everyone was a bit too much. Meeting for coffee was doable because, well, coffee, but this is too enclosed. Like Garfield to Mondays, Harriet hated mornings. 
+
+“*How the frack can someone be this chipper in the morning?!*” Harriet grumped. “*I thought East coasters were supposed to be the stoic ones. She and I were switched at birth, she would do great on the West coast. I can do this, I can do this.*” She kept searching around the elevator for some plaque, moniker, anything with a number or a person that could be responsible for this and get them all out. One of the guests had tried to press the call button, but no one in security, or the fire department, or whoever answers those sorts of calls, had gotten back to them yet.
+
+“*What in the actual frack is this morning.*” 
+
+Harriet had to take action. She glanced over the mother desperately trying to control her son, and asked if she could try to keep him a bit quieter so she could call 911. As Harriet lifted the phone to her ear, the mother just stopped trying to persuade him to stop and put her hand over his mouth so Harriet could explain their situation to the dispatcher.
+
+“Hi, yes, I’m stuck in an elevator at the American Museum of Natural History. We’re between the ground floor and the first floor, in the one second to the left when you enter the building’s lobby. The call button doesn’t seem to be working.  I’m here with five guests, and one other staff member. Can you please send someone right away?” 
+“Yes, of course. I’ll phone the fire department right away.” 
+
+Now, all there was was to pass the time until the gallant rescue. Harriet was trying to keep her calm, and Ruth was still happy to chatter away. 
+
+“So Harriet, “ Ruth looked up at her, smiling widely, “Last night when I got home from our day yesterday, I was thinking about the library yesterday, and orientation. Were you OK? I saw your eyes get very glassy at a few points.” 
+
+Harriet sighed. She really didn’t want to have this conversation with a girl she barely knew, but since arriving in New York yesterday meant she had no friends, she decided to put herself out on a limb.
+
+“I have no idea what came over me. It was the strangest thing. I got a few weird pangs in my chest, like my heart was constricting.”
+
+“Oh my goodness!” Ruth exclaimed, her face contorted into worry, “Has this happened before?”
+
+“No, never.” Harriet confessed, “It was really weird. I really have no idea what happened. Nothing has happened so far today, so I’m going to just put it on jet lag.”
+
+“That’s probably what it was.” Ruth nodded sagely, “I was lucky that I was able to move here last week. My mom and my aunt drove me from Boston and helped me move. I still slept for a straight week after the fact though, at least when my roommates were gone for work. I nearly became nocturnal!” She laughed, earning a few disbelieving looks from the guests trapped with us.
+
+Harriet tried to keep it together, but the fact that the background music to this conversation was this same poor boy, who refused to stop crying, did not help her case. His cohort of buddies were all desperately trying to make him laugh, but he was too guilty. His big, wet tears were streaming down his face as his friends made silly faces, sang ridiculous songs, and tried to give him hugs.
+
+Harriet would normally find this cute, but right now, before nine in the morning, she wanted to self-mutilate. “*I’m going to pop my ear drums so I never have to listen to anyone or anything again.*” Harriet thought, done with everything. “*There is no way I getting through this day without a drink.*”
+
+Thankfully for her, it only took an hour for the fire department to show up, and then another hour for the elevator to start working again. The firemen and the elevator technicians brought the elevator up the first floor, and the doors were open. 
+
+“Freedom!” Some small child in the back yelled. Harriet didn’t care though, because she was first in line to bust out of there and planned on getting an IV of coffee straight into her bloodstream. 
+
+“*I will not make it through this day.*” But of course, because Murphy’s Law is alive and well, when Harriet ran out of the elevator, she crashed into a strange man’s chest. After the initial impact, she looked up into dark, grey eyes.
+
+“Are you ok?” The tall, blond man asked while stepping backwards away from Harriet’s invasion into this personal space.
+
+“Uh...yeah. I’m so sorry!” Harriet nearly shouted, totally exasperated by the morning’s events. “*Some days are just meant to be awful. I can’t wait to be home with Copernicus and some wine and Hulu*” It’s when she glanced at the man properly she noted the same name tag that the rest of the PhD candidates had filled out: “Hi. My name is Brendan.”
+
+Thankfully, Ruth interjected. “Hi! I don’t think we had a chance to meet but you must be in our program!” She pointed to her own name tag, proof that we were indeed students in the same cohort. “I’m Ruth, and the lady who bumped into you is Harriet! And you are?”
+
+“Brendan, hi.” He said, looking a little weirded out by her immediate enthusiasm and friendliness.
+
+“*Ok, glad to know it’s not just me.*” Harriet observed, creating her exit strategy for this conversation. “*Time to get coffee and silence.*”
+
+“Did you just come from orientation? How was it? What did they cover? Did they know we were stuck in the elevator?” Ruth inquired.
+
+“Yeah, the admins knew after the fire trucks showed up and the fireman gave Harriet’s name to security as the person who reported it. It was ok, we mainly just went over the rules of the road. They gave us some free time again to explore the Museum now, so I thought I’d check out the map before I committed to a floor.” Brendan replied, hand raised towards the map on the mall next to the elevators. 
+
+“*He really keeps it short and to the point, doesn’t he?*” Harriet pondered, looking thoughtfully at Brendan, trying to see what he is all about. 
+
+“Gorram it. I can’t believe we missed the entire orientation. Between this and being trapped in an elevator with a screaming child, I am absolutely, 1000% done with today.” moaned Harriet, not even trying to keep a happy face on this time. “I’m going to get coffee and stare at a wall. I’ll see you guys later for second half of the day.” 
+
+“Wait Harriet! Don’t go. Come tour with us! Brendan, you don’t mind if we come with you, do you? Yesterday we stayed on the fourth floor, and haven’t had another chance to go to more parts of the Museum! It seems impossible to see more than one floor in the span of two hours even. I pity the tourists who only have a day or half day to be here! Please come Harriet! It will be fun, right Brendan?” Ruth implored, staring at Brendan and Harriet, waiting for answers. 
+
+Brendan and Harriet looked at each other, clearly both on the fence. Brendan was the first one to break the silence with a simple, “Sure.”
+
+Harriet really, really wanted to go home, or at least out to the Starbucks she knew was on the other side of the Planetarium. She wanted to see Copernicus for a few hours, lay in bed, and wallow, or alternatively, drink about 10 shots of espresso and return to orientation with a vengeance. “*What would my brother say if he saw me now? “Get in there and be nice, brat.”*” And with that, she nodded her assent. 
+
+“Oh yay!! Thank you two! Should we go to the Hall of Human Origins? That looks pretty cool, and it’s only one floor up!” Ruth said eagerly. 
+
+“Yeah, let’s go.” Harriet replied, “But we’re taking the stairs. And stopping at the Museum cafe.”
+
+“That’s fine! We need our steps anyway!” Ruth winked, heading for the staircase up and on the left. 
+
+### Chapter 5

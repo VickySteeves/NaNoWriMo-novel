@@ -5,3 +5,9 @@ But when her eyes opened, it was to the faces of her PhD cohort surrounding her,
 “Don’t move Harriet, help is on the way! Just stay down there. Someone give me a jacket to put under her head!” The familiar voice yelled out, half at her, half at the crowd of tourists and students around them. “Everything is going to be ok. You’ve had a bit of an accident.”
 
 What no one could have predicted, was Harriet’s reaction when they did eventually make it down to the first floor, to the Spitzer Hall of Humans.
+
+Harriet A. Allen was eating fried pickles, and loving it.
+
+### Past Life Nomenclature
+Farida A. Wiley = Farida Springer
+Henry K. Svenson = Harry Steveson
