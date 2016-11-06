@@ -157,9 +157,100 @@ After a round of “thank you” from both women, Ruth turned up the aisle towar
 ### Chapter 3
 Harriet A. Allen was very confused. 
 
-XXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXX
+She was staring down at a piece of paper that basically outlined the next four years of her life. 8 hours a day, five days a week, roughly equaling 7680 hours of her life. And she was, for the first time, totally and completely happy. Incandescently happy.
 
-When Harriet returned home to find Copernicus curled up like an angel on her bed, she collapsed, face down, and joined him in sleep. 
+“*Oh what is this feeling?!*” She sang in her head, trying to parse out the unfamiliar feeling of happiness, excitement, and anticipation rolled into one and fighting in her chest cavity. The packet that Jay gave her and her cohort this morning outline everything she wanted in a program: 
+
+> The normal course of study for AMNH’s Ph.D. degree will be four years. Students will earn a minimum of 62 credits through a combination of coursework, teaching assistantships, and individual dissertation research. As a distinctive strength of the program, students will be expected to work on their own research as early as the first semester of their first year, an opportunity not available in many university settings. To ensure this, students are matched to a faculty member’s research program and/or laboratory during the admission process.
+
+> The curriculum is intensive, immersive, flexible, and field- and collections-based. Students are required to complete a minimum of 62 credits through a combination of:
+
+> + Core courses (3 required: Evolution; Systematics and Biogeography; and Grantsmanship, Ethics, and Communication give students a broad overview of the conceptual basis, tools, and methods for studying life;
+
+> + Elective or immersive courses allow students to achieve a depth of knowledge in an area of interest;
+
+> + Museum seminar series expose first year students to a broad range of research disciplines and topics;
+
+> + Teaching assistantships at AMNH and at partner universities; in lieu of a traditional teaching assistantship, students also will have the opportunity to complete an equivalent educational project through the AMNH’s many educational outreach vehicles;
+
+> + Directed research culminating in a dissertation, which is defended.
+
+“If everyone could give me their attention, please!” Jay shouted over the cohort, who were all chattering away with each other, “We are going to fill out the forms in the back of your packet, rip them out, and hand them back to me. Then, we’re going to have a little mixer where each of your assigned faculty members will be coming in to meet you, and to meet your colleagues. If you have any questions, come ask. Yes, there will be food and drinks.“
+
+“*Oh wow, I didn’t realize we’d be meeting out advisors so soon...I can’t wait to meet...um...*” Glancing down at her packet again, Harriet found the name of the faculty member that she’d be working under for the next four years. “*Dr. Joss C. Canonne. Thank goodness they gave me his bio or else I’d be screwed. I should have looked this up before...*”
+
+> Dr. Cannone’s research on the systematics and evolution of birds, speciation analysis, and biogeography are all factors to understand how biotas evolve over time. This can in turn shape one’s understanding of the patterns and processes involved in diversification. The specific research focus of Dr. Cannone’s lab is the phlyogenetic history of songbirds. Dr. Cannone has also undertaken research contributing to conservation biology. 
+
+“*Wow, he pretty much is doing what I want to do for the rest of my life...*” Harriet glanced up from packet, and suddenly, Ruth.
+
+“Hi Harriet! Can you believe the faculty is going to come meet us on our first day? How lucky are we!“ Ruth gushed, slightly bouncing on the balls of her feet. 
+
+“Yeah. It’s something. Who’s your advisor?“ Harriet asked, her guard still up.
+
+“Um let me look again...” Ruth stared into her packet. “Sarah MacGovett. She studies bats and is the head of the Mammology department!”
+
+“Gadzooks, the head of the department? That’s going to open a lot of doors – maybe even the one to the field journal archive! My advisor is Dr. Joss C. Canonne. He studies – ”
+
+“Wait...did you just say gadzooks?” Ruth interrupted, clearly taken aback. 
+
+“Yes...why? Is that weird?” Harriet asked, puzzled. “*Do they not say that on the East coast? I didn’t realize it was so different...*”
+
+“YES it’s weird! Oh my god! I haven’t even heard anyone under the age of 70 use that!” Ruth chuckled, poking fun at Harriet. 
+
+“…anyway.” Harriet said, looking sideways at Ruth, “He studies--songbirds but is the only Ornithologist who also works on conversation, which is why I suspect they assigned me to him.” Harriet postulated, looking down at Dr. Cannone’s biography and trying to make Ruth forget all about the fact that she was blushing hard.
+
+“Ok everyone, thanks for your forms. We are missing…Harriet A. Allen’s. Surprise, surprise. Harriet?” Jay announced, looking purposefully at Harriet.
+
+A bigger blush. A quick rustle of paper and pen, and a hop-skip over to Jay, and Harriet’s form joined the others.
+
+“*What is up with this lady?! If she is any more on my back I’m going to start charging rent...*”
+
+“Thank you. Now that that is settled, let’s go up to the room where your faculty members should be assembling. But, as I’m sure you know, punctuality has it’s place in academia” Jay winked at the cohort, leading them up to the fourth floor of the Museum. “We’re actually going to be having this shindig in the Ornithology department, which two of her will be situated in. There is a wonderfully large old hall in the department that we sometimes set up for these types of events.”
+
+Jay tapped her AMNH badge against a panel near a door, and it opened into what looked like a Medieval dining hall. The ceiling was at least 100 feet high, and it was at least 40 yards long. There were a few faculty members already milling about the coffee station, and a few others near the snacks. The cohort visibly shrunk in the face of the people they would be answering to for the next four years. 
+
+“Now, don’t be nervous everyone!” Jay exclaimed, “They were once PhD students too, you know!”
+
+Looking at the name tags of the professors there, Harriet noticed one absence: Dr. Cannone had yet to show up. As the other PhD candidates paired off and began talking with their advisors, Harriet was, once again, on her own with nothing but coffee. 
+
+“*I guess I should have expected this. I know better than to let me imagination run away with itself and generate ‘expectations’.*”
+
+At twenty minutes in to the hour long party, Harriet was about to make some excuse to leave when a middle-aged, grey haired man only a few inches taller than her burst in. He went over the to name tag table, hastily filled it out, and stood sullenly by the cookies. 
+
+“*Oh goodness...*” Harriet thought, walking over. “*This is clearly my guy…”
+
+She coughed as politely as possible, extending her hand, and making her introduction: “Excuse me, are you Dr. Cannone? I’m Harriet Allen, I’ve been assigned to work in your lab. I’m very excited about the opportunity, thank you so much.”
+
+“Yeah yeah. You were lucky you liked birds and conservation, otherwise you’d have ended up with Jorge.” He spat out, “What was your plan for research so far?”
+
+"I was hoping to talk to you about that, to see where I’d best fit in with the lab’s work.” Harriet said. “*Oh frack he’s going to hate me.*”
+
+“Well, first thing’s first. Do what you want and what’s interesting. I’m not here to hold your hand or tell you what to do. You are responsible for yourself. I see this relationship as a master-apprentice. I’m going to teach you methods, give you too much literature to read, and hole you up in the Library on Thursdays when the journals arrive. You’ll read them every Thursday with me, regardless of your research schedule.”  He took a pause for a breath and an assessing glance at Harriet. “What do you think of that?”
+
+She just stared him in the face. 
+
+“I’m glad you value research freedom. If your one rule is I have to read, I think I’ve gotten very lucky in my placement.“
+
+He grunted in agreement. She just kept staring. 
+
+"*Oh frack I’m doing the thing again. Look away Harriet, look away!*”
+
+“What was your master’s thesis about?” He asked, clearly a bit more uncomfortable given Harriet’s constant eye contact.
+
+Harriet answered, this time looking over her shoulder at Ruth and her advisor, an older woman with a short-hair cut and easygoing expression. They were laughing, seemingly uncontrollably. Harriet felt a pang of jealousy as she looked back at the older, brash man that she’d be seeing for 7,680 hours of her life.
+
+As the party was winding down, Joss left, having stayed for a total of thirty minutes out of the whole hour, leaving Harriet on her own yet again. Mortified, Harriet looked around for the nearest escape route, and started walking as quickly as she could without giving the appearance of weirdness.
+
+And of course, she felt a tap on her shoulder and was forced into more human contact. 
+
+“Hey Harriet! Do you want to go around the corner to Jacob’s Pickles with me? Amazing Southern food, good drinks, and fairly low-key this time of day. It could be like a little ‘congrats for making it through the first day!’ happy hour!” Ruth asked, biting her lower lip, looking hopefully up at Harriet.
+
+“Yeah, I guess I could use a drink.” Harriet replied, “Especially given this day.”
+30 minutes later, Harriet had a pint and fried pickles in front of her and she was loving it: “*Wow. Everything fried. This is really good for me right now.*” She sighed happily as she took a sip of her sour beer and a bite of her fried pickle, drenched in chipotle mayo. 
+
+“What an awesome day,” Ruth started, “I can’t believe how awesome Sarah is. She’s going to be the *perfect* advisor! I can’t believe no one here works with canids, though! My whole department is bats and marsupials...”
+
+A few beers and fried desserts later, Ruth and Harriet parted ways, hopeful that their second day wouldn’t be as eventful as their first. And when Harriet returned home to find Copernicus curled up like an angel on her bed, she collapsed, face down, and joined him in sleep. 
 
 ### Chapter 4
 Harriet A. Allen was stuck in the elevator with the chattiest person on the planet, and it wasn’t even nine o’clock in the morning. 
