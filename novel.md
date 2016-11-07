@@ -2,7 +2,6 @@
 ## by Vicky Steeves
 
 ### Chapter 1
-
 Harriet A. Allen was late for her first day of school. 
 
 Her cat, Copernicus, lazily doing some “kitty yoga” and stretching as if to say, “why don’t you just stay home with me?,” and Harriet was almost tempted to at this point. After arriving to her new flat late because of a delayed flight (and dealing with an angry cat *and* angry airline representatives), not having any of her boxes of clothes arrive, and finding the studio apartment much smaller than promised, she’d just about had it with this move. At least she spotted a man with a cheap breakfast cart outside on her block.
@@ -17,7 +16,9 @@ After settling on black jeans and a more subdued navy striped top with a beautif
 
 After getting a free breakfast (“Welcome to New York!”), Harriet had to hurry to make it to the Museum on time. “*I could probably run through Central Park faster than the bus, right?*” She decided to go for it. “*If anything, it will be a nice nature walk, and hopefully I’ll see some inspiration for my dissertation*”
 
-Though she laughed off this ludicrous thought (“*I probably won’t know my dissertation until it smacks me in the face, literally.*”) and turning on some Explosions in the Sky on her phone, she was quickly entranced walking down the winding roads of the park, supposedly walking in the direction of the museum where she’d spend the next four years studying. In the air and trees, Harriet spotted several blue jays, yellow-rumped warblers, even a red-headed woodpecker! In the paths near the lake, she saw red-eared slider turtles sun bathing while eager squirrels waited near tourists to catch bits of their breakfast. 
+Though she laughed off this ludicrous thought (“*I probably won’t know my dissertation until it smacks me in the face, literally.*”) and turning on some Explosions in the Sky on her phone, she hopped on the M40 bus to the M1 bus to get down near Central Park. She had time, so she decided to get off right before the park to get some fresh air and clear her head before her first day. 
+
+She was quickly entranced walking down the winding roads of the park, supposedly walking in the direction of the museum where she’d spend the next four years studying. In the air and trees, Harriet spotted several blue jays, yellow-rumped warblers, even a red-headed woodpecker! In the paths near the lake, she saw red-eared slider turtles sun bathing while eager squirrels waited near tourists to catch bits of their breakfast. 
 
 “*You’d never have thought it, but New York City is randomly an ecologists’ dream.*” Harriet thought, gazing in wonder at the lush reserve in the heart of the city. 
 
@@ -31,7 +32,7 @@ After trying to ask some people in the park to point her towards 79th street, an
 
 Outside the museum, Harriet pauses. Looking up at the grandeur of the 142 year old building, her breath catches in her throat. “*Wow.*” is all she can think, as it looms above her, daring her to come in and discover. Then her mind returns, and all she can think is “*Wow. I hope no one notices my torn and coffee stained pants under my jacket*.”
 
-Scrambling up the stairs of the museum, she stares up at Theodore Roosevelt on his horse, triumphant, and darkens, “*He’s totally mocking me.*”  
+Scrambling up the stairs of the museum, she stares up at Theodore Roosevelt on his horse, triumphant, and darkens, “*He’s totally mocking me.*”
 
 She tries to catch her breath, to run faster, and as she finally breaches the Atrium doors, looking around for her new cohort of classmates, she staggered back, staring down at her chest. “*What was that?*”
 
@@ -39,7 +40,7 @@ An intense pang in her heart makes her look down to make sure no child has blast
 
 Just over the crowd, Harriet makes out a woman's scratchy, irritated voice, "Harriet A. Allen?! This is your last call!" 
 
-Harriet snaps back to awareness, eyes wildly searching out the voice while panting “Yes, I’m here!”  She finally spots the waving hand of the woman, and weaves through the crowd to a small group of eight, professionally and darkly dressed twenty- and thirty-something-year-olds. 
+Harriet snaps back to awareness, eyes wildly searching out the voice while panting “Yes, I’m here!”  She finally spots the waving hand of the woman, and weaves through the crowd to a small group of fifteen, professionally and darkly dressed twenty- and thirty-something-year-olds. 
 
 "Well thank goodness. We were just about to leave you to fend for yourself." The woman, whose name tag reads “Jay,” gestured to Harriet’s cohort of PhD students, and continued "Well, let's go. We have to make up some time in the schedule."
 
@@ -174,14 +175,35 @@ She was staring down at a piece of paper that basically outlined the next four y
 > + Teaching assistantships at AMNH and at partner universities; in lieu of a traditional teaching assistantship, students also will have the opportunity to complete an equivalent educational project through the AMNH’s many educational outreach vehicles;
 
 > + Directed research culminating in a dissertation, which is defended.
-
 “If everyone could give me their attention, please!” Jay shouted over the cohort, who were all chattering away with each other, “We are going to fill out the forms in the back of your packet, rip them out, and hand them back to me. Then, we’re going to have a little mixer where each of your assigned faculty members will be coming in to meet you, and to meet your colleagues. If you have any questions, come ask. Yes, there will be food and drinks.“
-
 “*Oh wow, I didn’t realize we’d be meeting out advisors so soon...I can’t wait to meet...um...*” Glancing down at her packet again, Harriet found the name of the faculty member that she’d be working under for the next four years. “*Dr. Joss C. Canonne. Thank goodness they gave me his bio or else I’d be screwed. I should have looked this up before...*”
 
 > Dr. Cannone’s research on the systematics and evolution of birds, speciation analysis, and biogeography are all factors to understand how biotas evolve over time. This can in turn shape one’s understanding of the patterns and processes involved in diversification. The specific research focus of Dr. Cannone’s lab is the phlyogenetic history of songbirds. Dr. Cannone has also undertaken research contributing to conservation biology. 
 
-“*Wow, he pretty much is doing what I want to do for the rest of my life...*” Harriet glanced up from packet, and suddenly, Ruth.
+“*Wow, he pretty much is doing what I want to do for the rest of my life...*” Harriet thought to herself, looking down at the packet to see what her schedule would look like, and the various concentrations the Museum offers new students.
+
+| Core courses | Evolution Systematics and Biogeography Grantsmanship, Ethics, and Communication (all three required during first year) | 4 credits 4 credits 3 credits |
+|------------------------------|------------------------------------------------------------------------------------------------------------------------------------------------------------|-------------------------------|
+| Elective courses | Student selects elective courses based on individual focus (carrying 1 credit/week class is in session)—15 credits to be completed during student’s tenure | 15 credits total |
+| Teaching Assistantship | Two different AMNH courses or comparable AMNH educational projects during the course of study | 6 credits total |
+| Weekly Museum Seminar Series | First-year students required to attend; other students encouraged to attend (carrying 1 credit/semester for two semesters) | 2 credits |
+| Student Symposium | Students will organize a symposium on research interests/activities | 1 credit |
+| Qualifying Exam | During fall of second year, leading to doctoral candidacy |   |
+| Dissertation Proposal | At end of second year |   |
+| Directed Research | Variable credits/term | 27 credits |
+| Dissertation |   |   |
+| Dissertation Defense |   |   |
+|   | Total Minimum Credits Required: | 62 |
+
+“*All that in four years?!*” Harriet felt the familiar panic setting in.
+
+>The curriculum is designed to meet students’ individual needs, ensuring that they get instruction in relevant areas and helping to direct them in their future careers. Students can elect a curriculum focus by choosing five (or more) related elective courses. Here are some examples of possible curriculum focus areas, and the elective courses that a student could choose to fill them:
+
+>Systematic Theory—Invertebrate Zoology, Statistics, Informatics, Systematic Algorithms and Software, Advanced Topics in Systematic Theory
+
+>Conservation Biology—Invertebrate Zoology, Herpetology, Conservation Biology, Ecology, Behavioral Biology, Topics in GIS
+
+“*Ok well if this is mix and matchable, then I could probably substitute out the first two and – “ Harriet glanced up from her reading, and suddenly, Ruth.
 
 “Hi Harriet! Can you believe the faculty is going to come meet us on our first day? How lucky are we!“ Ruth gushed, slightly bouncing on the balls of her feet. 
 
@@ -199,23 +221,25 @@ She was staring down at a piece of paper that basically outlined the next four y
 
 “…anyway.” Harriet said, looking sideways at Ruth, “He studies--songbirds but is the only Ornithologist who also works on conversation, which is why I suspect they assigned me to him.” Harriet postulated, looking down at Dr. Cannone’s biography and trying to make Ruth forget all about the fact that she was blushing hard.
 
-“Ok everyone, thanks for your forms. We are missing…Harriet A. Allen’s. Surprise, surprise. Harriet?” Jay announced, looking purposefully at Harriet.
-
-A bigger blush. A quick rustle of paper and pen, and a hop-skip over to Jay, and Harriet’s form joined the others.
+“Ok everyone, thanks for your forms. We are missing…Harriet A. Allen’s. Surprise, surprise. Harriet?” Jay announced, looking purposefully at Harriet. A bigger blush. A quick rustle of paper and pen, and a hop-skip over to Jay, and Harriet’s form joined the others.
 
 “*What is up with this lady?! If she is any more on my back I’m going to start charging rent...*”
 
 “Thank you. Now that that is settled, let’s go up to the room where your faculty members should be assembling. But, as I’m sure you know, punctuality has it’s place in academia” Jay winked at the cohort, leading them up to the fourth floor of the Museum. “We’re actually going to be having this shindig in the Ornithology department, which two of her will be situated in. There is a wonderfully large old hall in the department that we sometimes set up for these types of events.”
 
-Jay tapped her AMNH badge against a panel near a door, and it opened into what looked like a Medieval dining hall. The ceiling was at least 100 feet high, and it was at least 40 yards long. There were a few faculty members already milling about the coffee station, and a few others near the snacks. The cohort visibly shrunk in the face of the people they would be answering to for the next four years. 
+Jay tapped her AMNH badge against a panel near a door, and it opened into what looked like a Medieval dining hall. The ceiling was at least 100 feet high, and it was at least 40 yards long. There were a few faculty members already milling about the coffee station, and a few others near the snacks. 
+
+The cohort visibly shrunk in the face of the people they would be answering to for the next four years. 
 
 “Now, don’t be nervous everyone!” Jay exclaimed, “They were once PhD students too, you know!”
 
 Looking at the name tags of the professors there, Harriet noticed one absence: Dr. Cannone had yet to show up. As the other PhD candidates paired off and began talking with their advisors, Harriet was, once again, on her own with nothing but coffee. 
 
-“*I guess I should have expected this. I know better than to let me imagination run away with itself and generate ‘expectations’.*”
+“*I guess I should have expected this. I know better than to let me imagination run away with itself and generate ‘expectations’. Maybe I can at least prep my schedule so I can ask him quick questions and leave.*”
 
-At twenty minutes in to the hour long party, Harriet was about to make some excuse to leave when a middle-aged, grey haired man only a few inches taller than her burst in. He went over the to name tag table, hastily filled it out, and stood sullenly by the cookies. 
+At twenty minutes in to the hour long party, Harriet was about to make some excuse to leave when a middle-aged, grey haired man only a few inches taller than her burst in. 
+
+He went over the to name tag table, hastily filled it out, and stood sullenly by the cookies. 
 
 “*Oh goodness...*” Harriet thought, walking over. “*This is clearly my guy…”
 
@@ -223,7 +247,7 @@ She coughed as politely as possible, extending her hand, and making her introduc
 
 “Yeah yeah. You were lucky you liked birds and conservation, otherwise you’d have ended up with Jorge.” He spat out, “What was your plan for research so far?”
 
-"I was hoping to talk to you about that, to see where I’d best fit in with the lab’s work.” Harriet said. “*Oh frack he’s going to hate me.*”
+“I was hoping to talk to you about that, to see where I’d best fit in with the lab’s work.” Harriet said. “*Oh frack he’s going to hate me.*”
 
 “Well, first thing’s first. Do what you want and what’s interesting. I’m not here to hold your hand or tell you what to do. You are responsible for yourself. I see this relationship as a master-apprentice. I’m going to teach you methods, give you too much literature to read, and hole you up in the Library on Thursdays when the journals arrive. You’ll read them every Thursday with me, regardless of your research schedule.”  He took a pause for a breath and an assessing glance at Harriet. “What do you think of that?”
 
@@ -233,9 +257,9 @@ She just stared him in the face.
 
 He grunted in agreement. She just kept staring. 
 
-"*Oh frack I’m doing the thing again. Look away Harriet, look away!*”
+“*Oh frack I’m doing the thing again. Look away Harriet, look away!*”
 
-“What was your master’s thesis about?” He asked, clearly a bit more uncomfortable given Harriet’s constant eye contact.
+“What was your master’s thesis about?” He asked, clearly a bit more uncomfortable given Harriet’s constant eye contact. “Were you always interested in ornithology?”
 
 Harriet answered, this time looking over her shoulder at Ruth and her advisor, an older woman with a short-hair cut and easygoing expression. They were laughing, seemingly uncontrollably. Harriet felt a pang of jealousy as she looked back at the older, brash man that she’d be seeing for 7,680 hours of her life.
 
@@ -261,7 +285,8 @@ Although she thankfully arrived to her second day of work on time, meeting Ruth 
 
 “*I am done riding elevators with children for at least this entire week. I’ll take the gorram stairs up. I need to get my 10,000 steps anyway, and I haven’t found a good path in central park to run yet. And those bagels are too delicious. Yes. I’m going to walk. This is good.*” Harriet thought begrudgingly, “*At least until I get my AMNH official badge, though, then I am taking the freight elevator every day.*”
 
-What’s even better is, now, is that Harriet is stuck with not only the child (now just absolutely howling in the corner loudly) but also Ruth, who was content to pass the time chattering. Harriet was fine listening to the birds chirp at each other, but before nine AM, Ruth’s enthusiasm and love for everything and everyone was a bit too much. Meeting for coffee was doable because, well, coffee, but this is too enclosed. Like Garfield to Mondays, Harriet hated mornings. 
+What’s even better is, now, is that Harriet is stuck with not only the child (now just absolutely howling in the corner loudly) but also Ruth, who was content to pass the time chattering. Harriet was fine listening to the birds chirp at each other, but before nine AM, Ruth’s enthusiasm and love for everything and everyone was a bit too much. 
+Meeting for coffee was doable because, well, coffee, but this is too enclosed. Like Garfield to Mondays, Harriet hated mornings. 
 
 “*How the frack can someone be this chipper in the morning?!*” Harriet grumped. “*I thought East coasters were supposed to be the stoic ones. She and I were switched at birth, she would do great on the West coast. I can do this, I can do this.*” She kept searching around the elevator for some plaque, moniker, anything with a number or a person that could be responsible for this and get them all out. One of the guests had tried to press the call button, but no one in security, or the fire department, or whoever answers those sorts of calls, had gotten back to them yet.
 
@@ -270,6 +295,7 @@ What’s even better is, now, is that Harriet is stuck with not only the child (
 Harriet had to take action. She glanced over the mother desperately trying to control her son, and asked if she could try to keep him a bit quieter so she could call 911. As Harriet lifted the phone to her ear, the mother just stopped trying to persuade him to stop and put her hand over his mouth so Harriet could explain their situation to the dispatcher.
 
 “Hi, yes, I’m stuck in an elevator at the American Museum of Natural History. We’re between the ground floor and the first floor, in the one second to the left when you enter the building’s lobby. The call button doesn’t seem to be working.  I’m here with five guests, and one other staff member. Can you please send someone right away?” 
+
 “Yes, of course. I’ll phone the fire department right away.” 
 
 Now, all there was was to pass the time until the gallant rescue. Harriet was trying to keep her calm, and Ruth was still happy to chatter away. 
@@ -278,13 +304,13 @@ Now, all there was was to pass the time until the gallant rescue. Harriet was tr
 
 Harriet sighed. She really didn’t want to have this conversation with a girl she barely knew, but since arriving in New York yesterday meant she had no friends, she decided to put herself out on a limb.
 
-“I have no idea what came over me. It was the strangest thing. I got a few weird pangs in my chest, like my heart was constricting.”
+“I have no idea what came over me. It was the strangest thing. I got a few weird pangs in my chest, like my heart was being squeezed in a vice. My hears started ringing too, but June’s voice kinda snapped me out of it.”
 
 “Oh my goodness!” Ruth exclaimed, her face contorted into worry, “Has this happened before?”
 
-“No, never.” Harriet confessed, “It was really weird. I really have no idea what happened. Nothing has happened so far today, so I’m going to just put it on jet lag.”
+“No, never.” Harriet confessed, “It was really weird. I really have no idea what happened. Nothing has happened so far today, so I’m going to just put it on jet lag. I did only arrive two days ago, after all, and didn’t get to sleep that much because of it.”
 
-“That’s probably what it was.” Ruth nodded sagely, “I was lucky that I was able to move here last week. My mom and my aunt drove me from Boston and helped me move. I still slept for a straight week after the fact though, at least when my roommates were gone for work. I nearly became nocturnal!” She laughed, earning a few disbelieving looks from the guests trapped with us.
+“That’s probably what it was.” Ruth nodded sagely, “I was lucky that I was able to move here last week. My mom and my aunt drove me from Boston and helped me move. I still slept for a straight week after the fact though, at least when my roommates were gone for work. I nearly became nocturnal!” She laughed her ridiculously low-pitched, guffawed, snorting laugh, earning a few disbelieving looks from the guests trapped with us.
 
 Harriet tried to keep it together, but the fact that the background music to this conversation was this same poor boy, who refused to stop crying, did not help her case. His cohort of buddies were all desperately trying to make him laugh, but he was too guilty. His big, wet tears were streaming down his face as his friends made silly faces, sang ridiculous songs, and tried to give him hugs.
 
@@ -294,7 +320,9 @@ Thankfully for her, it only took an hour for the fire department to show up, and
 
 “Freedom!” Some small child in the back yelled. Harriet didn’t care though, because she was first in line to bust out of there and planned on getting an IV of coffee straight into her bloodstream. 
 
-“*I will not make it through this day.*” But of course, because Murphy’s Law is alive and well, when Harriet ran out of the elevator, she crashed into a strange man’s chest. After the initial impact, she looked up into dark, grey eyes.
+“*I will not make it through this day.*” But of course, because Murphy’s Law is alive and well, when Harriet ran out of the elevator, she crashed into a strange man’s chest. 
+
+After the initial impact, she looked up into dark, grey eyes.
 
 “Are you ok?” The tall, blond man asked while stepping backwards away from Harriet’s invasion into this personal space.
 
@@ -327,3 +355,174 @@ Harriet really, really wanted to go home, or at least out to the Starbucks she k
 “That’s fine! We need our steps anyway!” Ruth winked, heading for the staircase up and on the left. 
 
 ### Chapter 5
+Harriet A. Allen, Brendan H. Bird, and Ruth M. Jillian were having coffee together, silently, as the storm of the AMNH cafe raged around them. Children ran, adults yelled after them, and here these three students sat huddled in a corner closest to the window. 
+
+“*Thank goodness, a little bit of peace after the hell of this morning.*” Harriet sighed sarcastically,  hoping for a break in her headache as she looked out the window for any interesting birds that might happen to fly by and give her some hope. 
+
+Ruth looked as happy as could be across the table, sipping her latte excitedly as she looked over at her two sullen colleagues opposite her.  “So Brendan, what part of the program are you here for?” Ruth asked, happy to break the silence. 
+
+Harriet sighed again. “*Ok, stop being a bitch and just go with it.*” Harriet yelled at herself. “*This is not how you keep friends. You want a friend here. Enough.*”
+
+“I do paleontology. I’m hoping to get on an expedition to Mongolia, it’s most of the reason I applied here. I did my undergrad and master’s in California, the same place where the head of the Division is from.” Brendan said, finally looking excited to be in a conversation.
+
+“Wow! Really cool. Are you into like dinos, or old mammals, or what?” Ruth inquired. 
+
+“I did my master’s thesis on invertebrate fossils.” Brendan explained, “I am hoping to get placed in the division of Invertebrate Zoology and just liaison with paleontology, actually. I love field work but have no interest in dinosaurs or ‘old mammals,’ as you put it.” 
+
+Harriet looked down into her empty cappuccino cup and let the conversation flow around her. “*How weird would it look if I went up to get another coffee?*”  Her reverie was interrupted by Ruth’s perky, adorable, voice. “*Lord, beer me strength.*”
+
+“Harriet, don’t you agree?” Ruth asked innocently. 
+
+“Agree with what? Sorry, I zoned out.” Harriet replied, looking a bit worse for wear. 
+
+“That Brendan should take *Evolution* and the lab this semester instead of next, and switch the class time so he can be with us! I heard it’s better to study in three’s as opposed to two’s anyway. Harriet and I are taking one class this semester and two next semester, so we can ramp up to the hard stuff and get acquainted with the Museum and the city.“ Ruth half asked, half explained, giving Harriet a look that just screamed “You silly thing!” Harriet was surprised Ruth’s hands weren’t on her hips.
+
+“If you want to and if you don’t have anything else going on sure, why don’t you join us? At least Ruth is entertaining.” Harriet smirked, giving Ruth a playful look.
+
+“Harriet!” Ruth yelled out, pretending to be shocked to her core.
+
+Brendan looked between the two girls with the same blank-ish look on his face. “Yeah, I guess studying with you both could be interesting. Why not. I’ll do it this afternoon. Today’s the last day to switch, right?”
+
+“Yes, it definitely is. I remember reading an email about that yesterday.” Ruth affirmed. “Yay! We are going to be a great study group. I heard they have really nice rooms here to study in, or we could always go to Harriet’s apartment since it’s just her and her cat – unless you’re allergic? I have really loud roommates or else I’d offer my place.”
+
+Harriet groaned. She did not like people in her space.
+
+“No, I’m not.” Brendan replied.
+
+“I’m sure the space here will be more than adequate.” Harriet interjected, hoping that gives her two new study buddies enough of a hint about coming over. “We should probably start heading downstairs soon, right? If we want to get into the Hall before school gets out and the older kids start to arrive.”
+
+“Yes, very good idea Harriet!” Ruth turned to grab their empty cups to throw them away. 
+
+“Thanks!” shouted Harriet over the crowds.
+
+The three of them turned to the stairs to walk down to the Spitzer Hall of Human Origins. What no one could have predicted, was Harriet’s reaction when they did eventually make it down there.
+
+The three students stood in the doorway to the Hall, not knowing where to start first in it’s information-packed exhibits. 
+
+“Which one should we go to first? I kind of want to see the migration pattern one at the end, but then there is also this wall of skulls that is supposed to visualize the human family tree that looked really cool.” Ruth said, examining a map. 
+
+Harriet’s chest panged, again. “*Gorram it what is going on with this Museum?!*” She panicked. 
+
+“I don’t care, lead on Ruth! You seem the most prepared out of the three of us.” She said, hoping that some movement will help her heart and head settle down to their normal state. 
+
+Brendan, content to go with the flow, started walking with Ruth towards the end of the hall. Harriet walked a bit slower, in the shadow of her cohort, trying to get herself together.  Harriet’s vision began to be clouded with black spots, and her hearing was going in and out. “*Oh my god frack not again – *“
+
+And all of a sudden, Harriet dropped to the floor. 
+
+*Harriet was in the middle of Central Park at twilight. The sun was just beginning to descend over the treetops, leaving a beautiful pink-purple sky in its wake. She was sitting on a bench, keen to observe the nocturnal creatures of the park wake up, when all of a sudden, she felt a pain in her chest.*
+
+When Harriet A. Allen awoke, she wanted to believe that she was ok, that she was in her bed with her cat next to her, and the dream she’d had was just another in a series of persistent scenes/nightmares, and not that she was on the floor of her dream school and favourite museum.
+
+But when her eyes opened, it was to the faces of her PhD cohort surrounding her, and a frantic research assistant forcing them back. “*Oh my god this is my actual nightmare. What is happening?!*”
+
+“Don’t move Harriet! Giver her some air everyone. Just stay down there. Someone give me a jacket to put under her head!” The familiar voice yelled out, half at her, half at the crowd of tourists and students around them. “Everything is going to be ok. You’ve had a bit of an accident.”
+
+Harriet’s head swam. “What happened?” She asked.
+
+Ruth answered, “You just dropped down to the floor, Brendan and I did **not** see it coming at all! How are you feeling?” Harriet felt her head lift up and a lumpy warm mass shoved underneath it.
+
+“Weird...like vertigo. I had a chest pang and my hears went out and I don’t remember what happened. Did you guys see me fall?” 
+Ruth and Brendan shook their heads. “You were behind us.” Brendan explained. Jay was looking frantic, examining Harriet for any signs of immediate outward trauma. Harriet sat up, bracing herself against Ruth’s outstretch arm. 
+
+“Stay still, I’m going to call you an ambulance.” Jay said, pulling out her phone and tapping rapidly. 
+
+“There’s no need for the hospital! I’ll take her home. Brendan can help. ” Ruth interjected, reading the absolute look of terror on Harriet’s face, “Right Brendan? It’s ok for her to miss the second half of the day, right?”
+
+He nodded, eyes cloudy. Jay wavered, but ultimately gave in. 
+
+“Of course” Jay replied, exasperated, “I’ll at least call you a cab.”
+
+Jay, Brendan, Harriet, and Ruth shuffled outside, Harriet cradled between Brendan and Ruth, who were holding her up by her shoulders. They put her on a bench and waited for the Lyft that Jay had ordered for them.
+
+“Thanks you guys,” Harriet began, “I’m so sorry. This has never happened to me. I have no idea what it is. I am so embarrassed. This never happens to me, you have to believe me.”
+
+“Of course, Harriet!! We wouldn’t leave you now!” Ruth rolled her eyes playfully and elbowed Brendan in the side. 
+
+“If you guys could just get me in my apartment I’ll be ok, it’s just on the second floor.” Harriet asked humbly, trying not to overstep her own bounds. 
+
+“You two need to stay with her for at least an hour.” Jay demanded, “We don’t know if she’s had a concussion or not.”
+
+“But – “ Harriet started.
+
+“It’s totally fine! I can stay with her. Brendan, you can go once we get her in her place.” Ruth assured them. 
+
+A half an hour later, and Harriet was safely ensconced on her sofa in sweatpants, a sweatshirt, plus a blanket, watching Ruth try to pull the tea-making supplies out of the freshly delivered boxes of Harriet’s stuff. Copernicus was having fun jumping in and out of the opened boxes, happy that someone returned his box kingdom back to him. 
+
+“He’s so spoiled for cardboard. I buy him all these toys and this entertains him the most” Harriet said, smiling at her cat’s antics. “Thank you for doing this, Ruth. You really didn’t have to.”
+
+Ruth just smiled and yelled “of course!” from the kitchen, still fluttering about with the tea. “Why don’t you put on a movie for us? Have you got your Netflix hooked up yet?”
+
+“Sure! I know just the one.” Harriet replied, navigating her TV to Netflix, and searched for the perfect movie to recover. 
+
+When *The Breakfast Club* music started playing, Ruth just laughed out loud. 
+
+“I thought it was apropos! Plus, this is a great recovery movie. I am a sick lady you know!” Harriet exclaimed at her friend, who just smiled back. 
+
+“*Well in the one and a half days of knowing her, this is the least she’s talked. Maybe it was a nervous reflex...*” Harriet pondered, queuing up the movie. Copernicus, finally done with his box exploration, came to sit next to her. 
+
+Ruth came back with tea, and together, they sat. 
+
+### Chapter 6
+Harriet A. Allen was in her bed, cuddled up perfectly warm and snuggly, with a cat on her chest, and she had to leave for her first day of class.
+
+“*Oh my god he never does this why did he have to do this this morning when I need to get up so early?!*” She yelled in frustration at the word. Gingerly, she started to pet Copernicus, knowing that it would wake him up so that she wouldn’t have too. Eventually, he’d get tired of her petting him and move on to sleep either on the ottoman near the sofa, or up high perched on his cat tree. 
+
+Granted, it was ten A.M. and her class was at eleven A.M., but given Copernicus’s level of comfort, she was truly worried if she’d make it on time. Glancing over at the clothes she laid out the night before, she kept on stroking Perny’s fur, hoping that the little guy would move soon.
+
+Ten minutes, approximately 1,000,000 pets, and two kitty kisses later, Harriet was up and moving swiftly throughout her apartment. “*Ok, breakfast and litter for Copernicus, shower, breakfast, and coffee to go for me, double check my bag, and I’m good.*”
+
+Copernicus purred and meowed around her ankles as she brought over his food. She scratched his little kitty cheeks and cooed, “Don’t worry Perny, I’ll be home in just a few hours to play with you.*” 
+
+He wasn’t listening anymore, of course, because food. Harriet looked at her clock. “*Frack, gotta go!*”
+
+Twenty minutes later, and Harriet was out the door. Now that she understood the correct paths that would get her from the iHouse to the AMNH in under thirty minutes, she could take the buses and have a short walk through Central Park, enjoy her coffee and the life around her, and relax. 
+
+“*What a great commute*” She sighed happily to herself and she took the winding roads around the Museum, thinking about her first class. “*I wonder what the lab could possibly be like for this class...*” She wondered, taking out her packet again and giving it another look over. 
+
+> Evolution: This course is intended to give students a broad overview of the conceptual basis, tools, and methods for studying life. This course focuses on the history and interactions among species, within and between biotas, and across time and space. 
+
+“*Across space and time? That’s a bit weird...what’s that about?*”
+
+“Harriet! Harriet! Hey! Wait up!” Whipping around, Harriet saw Ruth running down a path in the park to come over to her. Her bone straight 
+
+“Hi!” She panted, coming up next to Harriet, “Want to go to class together? It’s almost time. Do you know what room it’s in?”
+
+“Yeah I think it’s up on the third floor in the suite that’s for the school. We passed a bunch of classrooms there the first day, or so I thought. The labs are all there too. We won’t get to walk much around the Museum I’m afraid.“ Harriet replied, turning towards the Museum entrance. 
+
+She flashed her official badge at the guard (“*I am a badass...*”) and the two *friends* started to make their way up to the third floor. 
+
+“Have you looked at the other electives?” Ruth asked as they walked up to the third floor.
+
+“Yeah, I think I have a plan I want to run through with Dr. Cannone – this one might be my favourite though.” 
+
+Harriet leaned over her packet with Ruth and pointed to the course: 
+
+> Extinction Science. This course is concerned with explaining the causes and consequences of biological extinction through time. Importantly, perspectives from both the physical and organismic sciences will be employed throughout. This survey course will use a broad historical perspective, i.e., the vicissitudes of life on this planet during the past 600 million years, with a special focus on three events that illustrate many of the most important phenomena and puzzles connected with major losses—the Permo-Triassic, Cretaceous-Paleogene, and Late Quaternary extinctions. Topics covered include: the fossil record of extinction; “mass” vs. “background” extinction; extinction rates: computation and meaning; assessing causation in theory and practice; biotic and abiotic factors in extinction; understanding modern-day biotic losses. 
+
+“Oh yeah! I was thinking about that course too – I did a lot of reading in undergrad about dire wolves – well, after reading _Game of Thrones_.“ Ruth laughed. 
+
+“There’s no way that dire wolves are real.” Harriet gave her a look over her glasses with the ‘come on, girl’ face. 
+
+“Dire wolves were actually real! The latin name was Canis dirus. They lived in North America actually with the sabertooth tigers. The first specimen was found in Ohio, in the 19th century. There are even two subspecies! And there are so many more canids that have gone extinct. Yes, we are definitely taking this class!” Ruth explained, speaking quickly with a passion in her eyes that Harriet had truthfully never noticed before.
+
+“*She may act like a doll, all perky and air-headed, and it makes you forget that she’s a legitimate scientist.*” Harriet deliberated. “*I wonder what where she went to school. Maybe if I ask she’d let me read her master’s thesis.*”
+
+“Hey, Ruth, would you ever let me read your master’s thesis?” Harriet requested, interrupting Ruth’s monologue on perhaps the coolest piece of trivia she’s learned this year. 
+
+“Um...random but ok I guess.” Ruth answered, brows furrowing quizzically.
+
+They reached the third floor with exactly one minute to spare. They took the last seats in the back row, and waited for the professor to arrive.
+
+Harriet noticed Brendan sitting by himself in the row across from hers and Ruth’s. She looked at him, and he just stared back. Harriet gave him a short wave, and the sides of his eyes crinkled. 
+
+A two hour lecture and a three hour introductory lab later, Harriet was just about done with life. Saying goodbye to Ruth and Brendan, Harriet made for the park.
+
+She had no idea what it was, but Harriet was just split between the Museum and the park. There were these...energies...pulling her in both directions. An intense desire to walk through the park and amble, and a strange devotion to the Museum. It’s as if she finally made it to where she was supposed to be. 
+
+She found a bench and sat, and had the strangest feeling of deja-vu. As she watched the orchard orioles and black-capped chickadees fly past her, she kept looking over her shoulder, as if something or someone was watching her. 
+
+Nothing.
+
+“*What is going on with me?*” She kept looking around the park, eyes searching for...something she couldn’t quite put her hands on.  “*I should probably get going. Perny is probably waiting for me.*”
+
+As she looked down at the bench she’d just risen from, she realized where she knew this from. The flash she had gotten on the floor of the Museum. The name of the donor of this bench was the same. *Farida Springer*. 
