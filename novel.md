@@ -483,7 +483,7 @@ Twenty minutes later, and Harriet was out the door. Now that she understood the 
 
 “*Across space and time? That’s a bit weird...what’s that about?*”
 
-“Harriet! Harriet! Hey! Wait up!” Whipping around, Harriet saw Ruth running down a path in the park to come over to her. Her bone straight 
+“Harriet! Harriet! Hey! Wait up!” Whipping around, Harriet saw Ruth running down a path in the park to come over to her. Her bone straight hair whipped around her face but her smile penetrated the mask it formed in front of her face.
 
 “Hi!” She panted, coming up next to Harriet, “Want to go to class together? It’s almost time. Do you know what room it’s in?”
 
@@ -493,13 +493,11 @@ She flashed her official badge at the guard (“*I am a badass...*”) and the t
 
 “Have you looked at the other electives?” Ruth asked as they walked up to the third floor.
 
-“Yeah, I think I have a plan I want to run through with Dr. Cannone – this one might be my favourite though.” 
-
-Harriet leaned over her packet with Ruth and pointed to the course: 
+“Yeah, I think I have a plan I want to run through with Dr. Cannone – this one might be my favourite though.” Harriet leaned over her packet with Ruth and pointed to the course: 
 
 > Extinction Science. This course is concerned with explaining the causes and consequences of biological extinction through time. Importantly, perspectives from both the physical and organismic sciences will be employed throughout. This survey course will use a broad historical perspective, i.e., the vicissitudes of life on this planet during the past 600 million years, with a special focus on three events that illustrate many of the most important phenomena and puzzles connected with major losses—the Permo-Triassic, Cretaceous-Paleogene, and Late Quaternary extinctions. Topics covered include: the fossil record of extinction; “mass” vs. “background” extinction; extinction rates: computation and meaning; assessing causation in theory and practice; biotic and abiotic factors in extinction; understanding modern-day biotic losses. 
 
-“Oh yeah! I was thinking about that course too – I did a lot of reading in undergrad about dire wolves – well, after reading _Game of Thrones_.“ Ruth laughed. 
+“Oh yeah! I was thinking about that course too – I did a lot of reading in undergrad about dire wolves – well, after reading _Game of Thrones_. Come on – the description was too great. They had to be real! And they were. It was seriously a clandestine moment.“ Ruth laughed. 
 
 “There’s no way that dire wolves are real.” Harriet gave her a look over her glasses with the ‘come on, girl’ face. 
 
@@ -526,3 +524,107 @@ Nothing.
 “*What is going on with me?*” She kept looking around the park, eyes searching for...something she couldn’t quite put her hands on.  “*I should probably get going. Perny is probably waiting for me.*”
 
 As she looked down at the bench she’d just risen from, she realized where she knew this from. The flash she had gotten on the floor of the Museum. The name of the donor of this bench was the same. *Farida Springer*. 
+
+### Chapter 7
+Harriet A. Allen kissed Copernicus, jumped out the door, and started her run to the Museum on her day, eyes on the prize and her mind set on her mission.
+
+With her phone, keys, AMNH badge, and METRO card (“*just in case...*”) strapped her arm with a runner’s helper, and Nicki Minaj giving her strength, she took off down Riverside for the two and a half mile run downtown to her school’s library. 
+
+“*Frack it’s cold out*” Harriet cursed, looking down at her shorts, “*I should have gone pants with the long sleeve. I hope I can take books home because I’d really just love to read with Perny this afternoon. Poor guy’s had a rough move, my little baby angel face kitten.*”
+
+The autumn air bit into her face as cars, cyclists, and sprinters whizzed past her, she simply stared ahead into the city, feeling serene and totally outside of her own head. 
+
+“*This is it...this is why I run. No thinking, no analysis, no anxiety. Just me, my burning muscles and lungs, and the road beneath my feet. This is it.*”
+
+When she turned into the park, a familiar feeling of ecstasy coursed through her, electrifying her already strained muscles. She put on a burst of speed as she ran along the lake. 
+
+“*This must be what they are talking about when they say runner’s high...all this time and it **finally** happens. In New York City. I’m damaged.*”
+
+Harriet winded down to a walk as she approached the side entrance to the Museum, where she could most easily access the Library. Taking the elevator up to the fourth floor, she could finally tap her badge against the reader (not without a smug look), and enter without having a librarian staring into her nostrils pushed up against the glass.
+
+Looking around, there were a few scattered “researchers”, three men and one woman, all above the age of sixty. They were bent over items from the special collections in special cozies, for their own personal projects, writing furiously in little notebooks next to their workstations – pencil’s only, of course. Harriet gave a small smile at the scene. While scanning the library, her eyes kept being drawn to the same bookshelf, in the middle row on the left side. 
+
+“*This must be where the book was from earlier this week. I really hope I can take books home, I really don’t want to be subject to all this scrutiny in the Museum...*”
+
+“Hi...Harriet?” June said from behind the desk, hoping she got Harriet’s name right.
+
+“Yup! Hi. How are you? I just had a few questions I thought you might be able to answer, while I was in the neighborhood.” Harriet asked brightly. 
+
+“Yes! What can I do for you?” June smiled, straightening her back happily.
+
+“Can I take books home from the library, and how many books can I take at once?” Harriet looked around the library again, her eyes drawn to the same stack over and over again.
+
+“No, I’m afraid not. You can take library materials to your office on site, but you can’t take anything out of the Museum.” June grimaced, unhappy to deliver bad news, 
+
+“There’s no policy on a hard and fast limit, but you really shouldn’t take a whole stack to your office. You can do some photocopying as long as the copyright isn’t a problem, and I can help you navigate that. Was there something you were looking for?”
+
+Harriet hesitated, but murmured, “Yes, I was looking for some publications by Farida Springer, the ornithologist? I’ve been a big fan of hers for a while and I’ve been looking forward to seeing what the library has collected about her.”
+
+It was a boldfaced lie. “*Oh god I hope she can’t tell, I suck at lying.*” 
+
+June lost her smile for just a split second, and recovered immediately. 
+
+“*What was that about?*” Harriet thought, wondering what the big deal was with this woman Farida. 
+
+“Oh sure, we have her works. Were you looking for anything in particular, or just her most popular to get started with?” June continued. 
+
+“Um, just a primer I think. The popular stack first. If you could just give me a list of the titles, I would be very grateful. I’ll come back when I am at the Museum all day.” Harriet clarified, pointing down at her running clothes. 
+
+“Of course! I can put them aside for you, if you’d like. When are you in next?”
+
+“Um, this coming Monday. Can you hold a book for four days?” Harriet fretted, clearly uncomfortable with the idea of making extra work for this weird but very nice woman.
+
+“Yes, it’s no problem. I’ll print that list for you now, and then come back on Monday at some point. You can have a table in the special collections room, I’ll reserve it for you. That way, you can see some of the three dimensional collection, like her effects. Sweaters, journals, binoculars, etc.” June explained, “but only if it interests you!”
+
+“Yes!” Harriet practically screamed in the library. “I would really love that. Thank you for being so kind to me, I really appreciate this. You’re making my dream come true!”
+
+“*Oh god I’m laying it on too thick she’s totally going to see right through me, I should have asked Ruth to meet me. She can convince anyone she’s being genuine all the time.”
+
+June handed Harriet the list of interesting journal articles and books. 
+
+“Thank you again! This is great!” Harriet effused.
+
+June blushed, “Of course. It’s my job! And I love the enthusiasm of students. Come back anytime.”
+
+Harriet thanked her yet again and walked out of the library, taking her time to go downstairs and back home. She wandered through the Museum without really taking the time to read the exhibit descriptions carefully; just looking at the facsimiles and marveling at the craftspersonship and the science that went into building this institution. 
+
+And of course, she was caught by Dr. Joss C. Cannone, who was walking through an exhibit with the same narrow focus with which he regarded Harriet last week. 
+
+“Harriet, hello. You clearly aren’t here for classes. Taking another tour? Surviving this one ok?” He said gruffly. 
+
+“Yes, I’m fine thanks Dr. I came by to check on some materials in the library.“ Harriet replied as smoothly as possible, trying to remain as calm as possible while speaking to her boss in running leggings and sneakers. 
+
+She locked eyes with him again. 
+
+“*Oh god why am I so weird, I can’t stop staring in his eyes. I hate when I do this!*”
+
+“Have you taken a look at the program requirements? We should probably meet about your schedule. When are you here next, properly?” Dr. Cannone lectured. 
+
+“This coming Monday. Are you available before 11am or after 4pm? I have a class and a lab that day.” Harriet offered, still peering straight into his eyes. 
+
+“Come in at 10am, this won’t take longer than a half hour. I’ll see you then.” And with that, he continued on his previous trajectory, leaving her gaping in the dust. 
+
+As she turned out of the Museum and walked out into the park, she wondered if or when Dr. Cannone would open up to her. 
+
+“*He is so fracking smart, I can’t wait to get to work in his lab next year.*” Harriet thought, “*He just must not be a fan of advising someone whose not directly working with him yet. At least he offered to meet with me though…without me having to ask!*”
+
+Harriet started to jog lightly, hoping to clear her thoughts. Her calves still ached from her earlier run, and she was desperate for a sip of water. 
+
+“*I’ll just run faster and be home faster, and then I can just relax with the baby kitten.*” She optimistically mused, running close to the lake before veering off towards the road where she would have to run home.
+
+After coming home, showering, and curling up with Copernicus, Harriet booted up her computer to find some of the stuff that June had printed out:
++ _Ferns of the Northeastern United States_
++ _John Burroughs' America_
++ _Ferns of the Camp Wigwam region_
++ _Natural science for the layman : local birds, plants, and animals : Fall 1949_
++ _The story of the land_
+
+After going through some less than ethical back channels, she found these books electronically for her own collection. “*Ok if I use #icanhazpdf once I’m not totally a bad person, right? This person has been dead for 20 years! Besides, how is the first article that comes up when you Google her from the NY Times, anyway?*”
+
+Reading along, Harriet was beginning to shape a picture of a woman whose name was following her for the past week. 
+
+> Ms. Springer, bluff, wiry, freckled and partial to tweed suits, served for 60 years as a full-time staff member of the American Museum of Natural History, revealing the wonders of nature to the students in her classes. She was probably best known as the person, starting in 1940, who led many thousands of people on early-morning hikes through The Bramble every spring and fall. Toting field glasses and bird manuals, the people would listen to her lecture on the scores of migratory birds using Central Park as a resting place. She kept an office at the museum until 1981 and led her last bird walks at age 94.
+
+Harriet idly scrolled through all the old pictures of Ms. Springer, her field drawings and notes. 
+
+“*I can’t wait to see these in person...*” was her last thought before drifting off to bed, thinking of the possibilities that awaited her in the library this Monday. 
