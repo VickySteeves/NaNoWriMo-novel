@@ -1,0 +1,6 @@
+### Past Life Nomenclature
+Farida A. Wiley = Farida Springer
+Henry K. Svenson = Harry Steveson
+
+The Farida A. Wiley Library at the John Burroughs Sanctuary in West Park, New York has five collections that include more than 740 cataloged books. The library began with items donated by Ms. Wiley including her books, publications she wrote or edited, manuscripts, personal papers, photographs, news articles, and artifacts. The John Burroughs Collection has 101 volumes by Burroughs including the complete 1924 twenty-three-volume set published by William H. Wise and Co., the "Wake-Robin" edition, and an incomplete Riverby edition, originally published by Houghton Mifflin between 1905 and 1922. This collection also has books about Burroughs, personal papers, photographs, and artifacts. In addition, the Library holds an assortment of books associated with the life, philosophy, and writing of Burroughs, and also holds the uncataloged papers of the John Burroughs Association. Finally, the Library has the collection of writings by John Burroughs Association awards recipients: medal holders, books on the List of Nature Books for Young Readers, and, in the future, essays by winners of the essay award. William D. Perkins is the Curator of the Collection.
+
